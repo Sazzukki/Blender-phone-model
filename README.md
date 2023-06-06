@@ -7,5 +7,5 @@
 ![spec1](https://sun9-17.userapi.com/impg/HFs9LzEbZ-48rblnQPdVzg64myFXY04PaTJidA/eHCu2w2GukY.jpg?size=1386x879&quality=96&sign=62077faabd0cb8f3a95f0be13ee09a99&type=album)
 ## Контакты
 - VK : [Дарина Изнаирова](https://vk.com/sadzzuki)
-- [Telegram]([https://t.me/suzzki])
+- Telegram @suzzki
 - mail : tekashiki.kijimi@gmai.com
